@@ -1,5 +1,5 @@
 - 👀 I’m interested in Cybersecurity, Networking, and Programming
 - 📫 How to reach me: rverma83@gatech.edu / ritvikverma19@gmail.com
 - ⚡ Hobbies: Working out, playing piano, watching anime ... and working out more
-- 🎓 Current Sophmore at the Georgia Institute of Technology: Computer Engineering Major
+- 🎓 Current Junior at the Georgia Institute of Technology: Computer Engineering Major
 - 🗽 US Army Cadet
